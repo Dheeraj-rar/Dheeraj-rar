@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Dheeraj-rar
-- 👀 I’m interested in music and ME.
+- 👀 I’m interested in music and code.
 - 🌱 I’m currently learning 
 - 📫 How to reach me Email:dheerajhu159@gmail.com
 
