@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Dheeraj-rar
+- 👋 Hi, I’m Janardhan
 - 👀 I’m interested in music and code.
 - 🌱 I’m currently learning 
 - 📫 How to reach me Email:dheerajhu159@gmail.com
